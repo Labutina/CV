@@ -1,2 +1,2 @@
-# LabutinaIrina.github.io
+# Labutina.github.io
 сайт визитка 2
